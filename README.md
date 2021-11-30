@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Mike Lim
 - 👀 I like making YouTubes https://www.youtube.com/channel/UCf556UrEFn9DNl2279XPaqg
-- 🌱 I’m currently learning a few good things :)
+- 🌱 I’m currently learning a few good things ✨
 - 📫 How to reach me https://toycrane.tk/
 
 <!---
