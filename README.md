@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Michael Lim
+- 👋 Hi, I’m Michael
 - 🌱 I’m currently learning a few good things ✨
 - 📫 How to reach me: https://toycrane.tk/
 - 🦸🏻‍♂️ Pronouns: he/him
